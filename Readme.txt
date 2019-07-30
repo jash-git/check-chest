@@ -3,7 +3,7 @@
 
 資料來源: https://kknews.cc/zh-tw/fashion/rznnkor.html
 https://www.nownews.com/news/20190722/3514044/?from=nnln_push&utm_source=ln&utm_medium=nn&utm_campaign=push
-
+https://www.ettoday.net/news/20190730/1501418.htm?from=line_et_news
 
 第一招：看乳溝
 
